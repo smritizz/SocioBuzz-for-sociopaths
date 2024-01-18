@@ -1,1 +1,0 @@
-# SocioBuzz-for-sociopaths
